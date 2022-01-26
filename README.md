@@ -1,1 +1,1 @@
-https://moshu.sytes.net
+https://nykverse.github.io/moshustudio/
