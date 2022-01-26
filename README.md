@@ -1,1 +1,1 @@
-# https://moshu.sytes.net
+https://moshu.sytes.net
